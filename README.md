@@ -1,6 +1,0 @@
-# Projectk
-
-
-xfvbnbgxdszSZDxfgchvjbn
-sadfghzdfgchvb
-dtszfdghj
